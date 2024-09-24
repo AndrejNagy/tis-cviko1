@@ -15,4 +15,4 @@ Nas tim tvoria clenovia:
 1. Mykola Shulhin
 2. Andrej Nagy
 3. Ivana Bekesova
-4.
+4. Zdenko Nemeth
