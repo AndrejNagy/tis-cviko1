@@ -13,6 +13,6 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1. Mykola Shulhin
-2.
+2. Ivana Bekesova
 3.
 4.
